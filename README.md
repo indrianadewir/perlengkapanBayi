@@ -1,0 +1,2 @@
+# perlengkapanBayi
+.[sjdgsj
